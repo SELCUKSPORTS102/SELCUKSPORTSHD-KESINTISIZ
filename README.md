@@ -18,7 +18,7 @@
 
 <hr>
 
-<h2>🔍 SEO Anahtar Kelimeler</h2>
+<h2>🔍 SELÇUKSPORTS - Kesintisiz Yayın Keyfi</h2>
 <p>selcuksports, selcuksportshd, canlı maç izle, HD spor yayını, futbol canlı yayın, basketbol canlı yayın</p>
 
 <p><strong>Not:</strong> Bu içerik yalnızca tanıtım ve bilgilendirme amacıyla hazırlanmıştır.</p>
